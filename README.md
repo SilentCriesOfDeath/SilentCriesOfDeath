@@ -7,5 +7,6 @@ That's why I left the town, that's why I'm currently homeless.
 So when people ask me to share about my life and share about what i'm feeling or why i'm not mentally here right now, this is all why I can't. Because in the end of it all, everyone will end up leaving me or hurting me in any way they can, it's just how my life goes. 
 I'm trying my best to get better, but when people can't be patient with me, it just ends up setting me back even more. 
 I appreciate those in my life who have stayed with me, but I am so close to blowing my shit clean off. And i'm sorry for being selfish, but I really cannot do this anymore. Too many people in my life have hurt me, it's hard to trust anyone these days lol.
+I don't think people understand how hard it is for me to make friends or talk to people, because it comes so easy to some people. But I'm always having panic attacks and some other bullshit just because I'm always thinking people are judging me, and I'm not sure how to stop it.
 Sorry.
 
