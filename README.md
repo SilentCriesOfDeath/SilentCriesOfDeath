@@ -1,3 +1,3 @@
-There's  a lot of things in this world I could wish for, a lot of things I'd want for my life and myself growing older. 
+<img width="" height="" alt="CyanideTheAngel-1788984141220" src="https://github.com/SilentCriesOfDeath/uhhhhh/blob/4715e36108283fb5751f79a60dc0a95d47127c6b/CyanideTheAngel-1788984141220.png" />
 
 
