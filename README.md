@@ -1,4 +1,4 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&duration=3000&pause=200&color=9F2042&width=435&lines=U+Make+My+Heart+Sore;Jump+From+The+Fourth+Floor⁠)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Merriweather&duration=3000&pause=200&color=9F2042&width=435&lines=U+Make+My+Heart+Sore;Jump+From+The+Fourth+Floor;Red+Into+My+Core;The+Past+Can't+Be+Restored+.⁠)](https://git.io/typing-svg)
 
 
 
